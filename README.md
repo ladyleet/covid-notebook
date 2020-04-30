@@ -52,6 +52,24 @@ I mixed in chocolate chips after I put the bread in the pan for baking.
 
 #### [Chicken Katsu](https://www.foodandwine.com/recipes/chicken-katsu)
 
+### [Wagamama Katsu Curry](https://www.independent.co.uk/life-style/food-and-drink/wagamama-katsu-curry-recipe-how-to-make-cooking-chef-tutorial-video-a9489466.html)
+
+### Asian Pork Skewers
+
+Recipe:
+1 lb pork shoulder, sliced thin (about 1/4 inch thick, 1 inch wide, 4 inch length)
+2 tbs oyster sauce
+4 tbs soy sauce
+2 tbs hoisin sauce
+2 tbs sugar
+6 cloves garlic minced
+1 tbs oil
+1 tsp black pepper
+
+Marinate overnight for best flavor or at least 4hrs.
+Skewer the shoulder in a zig zag accordion style onto a skewer.
+Cook on grill til charred with nice color.
+
 ### Lemongrass Pork Skewers
 
 Recipe:
@@ -65,7 +83,7 @@ Recipe:
 1 tbs oil
 1 tsp black pepper
 
-Marinate overnight for best flavor or at least 4hrs. Cook 18mins 375
+Marinate overnight for best flavor or at least 4hrs. Cook 18mins 375.
 
 ## Desserts
 
