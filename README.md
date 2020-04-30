@@ -46,11 +46,11 @@ I mixed in chocolate chips after I put the bread in the pan for baking.
 
 ### Hawaiian Takeout Meal
 
-#### [Homemade Tonkatsu Sauce](https://www.justonecookbook.com/tonkatsu-sauce-recipe/)
+#### - [Homemade Tonkatsu Sauce](https://www.justonecookbook.com/tonkatsu-sauce-recipe/)
 
-#### [Hawaiian Macaroni Salad](https://www.favfamilyrecipes.com/authentic-hawaiian-macaroni-salad/)
+#### - [Hawaiian Macaroni Salad](https://www.favfamilyrecipes.com/authentic-hawaiian-macaroni-salad/)
 
-#### [Chicken Katsu](https://www.foodandwine.com/recipes/chicken-katsu)
+#### - [Chicken Katsu](https://www.foodandwine.com/recipes/chicken-katsu)
 
 ### [Wagamama Katsu Curry](https://www.independent.co.uk/life-style/food-and-drink/wagamama-katsu-curry-recipe-how-to-make-cooking-chef-tutorial-video-a9489466.html)
 
