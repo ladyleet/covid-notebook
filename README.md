@@ -28,7 +28,45 @@ I mixed in chocolate chips after I put the bread in the pan for baking.
 
 ### [Tartine Sourdough Country Bread](https://www.google.com/amp/s/www.theperfectloaf.com/tartine-sourdough-country-loaf-bread-recipe/amp/)
 
+### Warburtons crumpets(https://metro.co.uk/2020/05/07/warburtons-reveals-iconic-crumpets-recipe-can-make-home-12667902/?ito=social)
+
 ## Savory
+
+### Crispy Pork Belly 🔥🔥
+
+The easiest way to make crispy pork belly. This method is as simple as it gets. Doesn't require mountains of salt and you don't need to dry out the skin in the fridge for 12-24 hours like a lot of other recipes tell you to do.
+
+Perfectly light & crispy skin pork belly everytime!
+
+Things you'll need:
+
+1~1.5kg fresh pork belly
+A little salt
+Pot with boiling water
+An air fryer
+
+Method:
+
+Fresh pork belly is best. Boil for 40mins, remove and rest.
+Pat belly dry and preheat air fryer at 200c.
+
+Using a fork, poke a gazillion holes in the skin. When you think you have poked enough holes, poke some more.
+
+Flip and cut a few slits 3/4 way through the meat. Season with salt and any other spices you want.
+
+Flip back over and pat the skin as try as possible. Lightly season with salt and place in air fryer at 200c.
+
+Roast for 40mins or until golden and crispy.
+
+Rest for a few mins, portion up and enjoy!
+
+A detailed video and step by step guide available here:
+
+https://youtu.be/ge7spWPrPwE
+
+Give this a go! Juicy and very crispy every time!
+
+NOTE: forgot to mention in the video but make sure you place air fryer by an open window as the skin will pop causing fat to touch the heating element which will cause a little smoke. It's completely normal for it to pop, so don't be alarmed when it happens.
 
 ### [Creamy Tuscan Chicken](https://tasty.co/recipe/creamy-tuscan-chicken)
 
@@ -53,6 +91,43 @@ I mixed in chocolate chips after I put the bread in the pan for baking.
 #### - [Chicken Katsu](https://www.foodandwine.com/recipes/chicken-katsu)
 
 ### [Wagamama Katsu Curry](https://www.independent.co.uk/life-style/food-and-drink/wagamama-katsu-curry-recipe-how-to-make-cooking-chef-tutorial-video-a9489466.html)
+
+### [Original Panda Express Orange Chicken](https://tasty.co/recipe/original-orange-chicken-by-panda-express)
+
+### [Braised Brisket Martha Stewart](https://www.marthastewart.com/344303/braised-brisket-with-carrots-garlic-and)
+
+### Teochew Chive Dumplings
+
+One of my favorite Teochew dishes to eat for breakfast or as a snack. You can steam or pan fry them, but I prefer to pan fry them for the texture!
+
+Ingredients & simplified steps are below.
+
+Teochew w/ Chinese & English subs: https://youtu.be/lNnrKddllRs
+Vietnamese w/ Viet & English subs: https://youtu.be/RZfxqvwClg4
+
+Ingredients:
+1 cup rice flour
+½ cup glutinous rice flour
+½ cup tapioca flour
+¼ tsp salt
+1 cup boil water
+1 lb chives
+½ lb ground pork
+2 tbs oil
+1 tbs chicken stock
+½ tsp black ground pepper
+2 cloves of garlic
+
+Simplified steps:
+
+1. Mix ground pork with all the spices above
+2. Cut chives and mix with the pork
+3. Mix all 3 types of flour together with hot water to make the dough
+4. Cut into 12 pieces and roll them out in wrappers
+5. Fill the wrappers with 1 spoon of pork&chives filling
+6. Steam for 10 mins
+7. Pan fry for 3 mins
+8. Enjoy :)
 
 ### Asian Pork Skewers
 
@@ -86,6 +161,22 @@ Recipe:
 Marinate overnight for best flavor or at least 4hrs. Cook 18mins 375.
 
 ## Desserts
+
+### Banana Bread with Mochi
+
+BANANA BREAD MUFFINS + MOCHI 🌟
+
+the muffins turned out soft, buttery, and fluffy with a crisp outside and a gooey, chewy mochi center
+
+i barely waited for this to cool down and may have scalded my fingertips but it was soooo worth it
+
+banana bread recipe: https://www.facebook.com/groups/subtleasiancooking/permalink/3463503326998447/
+
+mochi from this recipe: https://www.facebook.com/groups/subtleasiancooking/permalink/3513992578616188/
+
+### [Aborrajados - Fried Plantains](https://www.thespruceeats.com/aborrajados-fried-sweet-plantains-with-cheese-3029651)
+
+### [Smores Cookie Cups](https://kitchenfunwithmy3sons.com/smores-cookie-cups/)
 
 ### [Rye Chocolate Chip Cookies - King Arthur](https://www.kingarthurflour.com/recipes/rye-chocolate-chip-cookies-recipe)
 
