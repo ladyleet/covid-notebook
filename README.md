@@ -96,6 +96,27 @@ NOTE: forgot to mention in the video but make sure you place air fryer by an ope
 
 ### [Braised Brisket Martha Stewart](https://www.marthastewart.com/344303/braised-brisket-with-carrots-garlic-and)
 
+### Artichoke and Sun Dried Tomato Ziti
+
+1/4 LB of Ziti
+3/4 C of Canned Artichoke Hearts, cut in 1x1 inch squares (approximately)
+1/8 C of Sun Dried Tomato, roughly chopped
+Approx 16 fl oz Chicken Stock
+2 t salt
+Black pepper to taste
+1/8 C of Basil, roughly chopped
+1/4 C Parmesan, grated
+
+Put chicken stock, salt, and ziti in a saucepan or shallow pot. The ziti should basically be just covered, about 1/2 inch of stock above the ziti. Let boil for about 12 minutes, or until al dente.
+
+Stir in the sun dried tomato and continue to let reduce until there is only enough liquid to coat the pasta. It should become a thicker liquid, but not too thick.
+
+Then, stir in the artichokes and add the parmesan; keep stirring.
+
+When the texture of the sauce feels right to you, add in the basil.
+
+Taste, and adjust for flavor with salt and pepper and serve!
+
 ### Teochew Chive Dumplings
 
 One of my favorite Teochew dishes to eat for breakfast or as a snack. You can steam or pan fry them, but I prefer to pan fry them for the texture!
